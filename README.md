@@ -1,8 +1,8 @@
 <p align="center" dir="auto">
-<sub>𝚜𝚘𝚖𝚎 　𝚠𝚒𝚕𝚕 𝚍𝚒𝚎 　𝚒𝚗 　𝕙𝕠𝕥 　𝚙𝚞𝚛𝚜𝚞𝚒𝚝 𝚒𝚗　 𝚏𝚒𝚎𝚛𝚢 　𝚊𝚞𝚝𝚘 𝚌𝚛𝚊𝚜𝚑𝚎𝚜 </sub>
+<sub>𝙨𝙤𝙡𝙙𝙞𝙚𝙧 𝙗𝙤𝙮 ,　oh my 𝕝𝕚𝕥𝕥𝕝𝕖 　𝚜𝚘𝚕𝚍𝚒𝚎𝚛 𝚋𝚘𝚢! </sub>
 
 <p align="center" dir="auto">
-<img src="https://64.media.tumblr.com/64fac815557d0f14d24f85581437d22b/ce6014c56145d88f-e8/s500x750/f3a3ba2aa779a0cbd6269eb533d1bc08f95e107c.pnj" style="max-width: 60%; "></p>
+<img src="https://64.media.tumblr.com/2e856af7d7af7038aec6e598be2fdcfc/65cc7a76f4ec20de-db/s500x750/9808b9c02375b536032f880b2974beecfc1f3082.pnj" style="max-width: 60%; "></p>
 
 <p align="center" dir="auto">
 <sub>𓈒        𐄈   𝕓𝕚𝕝𝕝𝕪 　macca  　𝙤𝙧 　 ｐｅｔｅｒ   .𓂂⑅. 
@@ -11,4 +11,6 @@
 .</sub> 
 
 <p align="center" dir="auto"> 
-<img src="https://64.media.tumblr.com/588df26007064f3a009c73a5fcc8bbea/2deb1afcc85895a3-c5/s100x200/50f4f921e7d68a711537952b290c28e541b3ecff.pnj"max-width: 100%; "></p>
+<img src="https://64.media.tumblr.com/f0084c728cce2f1905ab8d1eb054b52b/7fe5684d0154a910-dd/s640x960/f85adb0e0154c51dcaacfabc49033572d6b18644.gifv"max-width: 100%; "></p>
+
+<sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　ill be ,　𝚃𝚁𝚄𝙴 　ｔｏ 𝕐𝕆𝕌!! </sub>
