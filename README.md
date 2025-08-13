@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/2e856af7d7af7038aec6e598be2fdcfc/65cc7a76f4ec20de-db/s500x750/9808b9c02375b536032f880b2974beecfc1f3082.pnj" style="max-width: 60%; "></p>
 
 <p align="center" dir="auto">
-<sub>𓈒        𐄈   𝕓𝕚𝕝𝕝𝕪 　macca  　𝙤𝙧 　 ｐｅｔｅｒ   .𓂂⑅. 
+<sub>𓈒        𐄈   𝕓𝕚𝕝𝕝𝕪 　wayne  　𝙤𝙧 　 macca   .𓂂⑅. 
 <p align="center" dir="auto">
 <sub>audhd 　3𝙩𝙚𝙚𝙣 　ｆｅｍａｌｅ
 .</sub> 
