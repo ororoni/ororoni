@@ -13,4 +13,10 @@
 <p align="center" dir="auto"> 
 <img src="https://64.media.tumblr.com/f0084c728cce2f1905ab8d1eb054b52b/7fe5684d0154a910-dd/s640x960/f85adb0e0154c51dcaacfabc49033572d6b18644.gifv"max-width: 100%; "></p>
 
-<sub>　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　 　 　 　　　ill be　𝚃𝚁𝚄𝙴 　ｔｏ 𝕐𝕆𝕌!! </sub>
+<sub>　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　 　 　 　　　ill be　𝚃𝚁𝚄𝙴 　ｔｏ 𝕐𝕆𝕌!! </sub> 
+
+[prounouns](https://github.com/militaryyaoi/militaryyaoi/edit/main/README.md)
+
+[rentry](https://rentry.co/billybeers)
+
+more links in the future... 🤔 ( mccyaoi on discord!!)
