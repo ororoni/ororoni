@@ -15,7 +15,7 @@
 
 <sub>　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　 　 　 　　　ill be　𝚃𝚁𝚄𝙴 　ｔｏ 𝕐𝕆𝕌!! </sub> 
 
-[prounouns]((https://pronouns.cc/@paulmccartney)
+[prounouns](https://pronouns.cc/@paulmccartney)
 
 [rentry](https://rentry.co/billybeers)
 
