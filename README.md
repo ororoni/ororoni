@@ -19,4 +19,7 @@
 
 [rentry](https://rentry.co/billybeers)
 
+[rentry links ,, tradeable..](https://rentry.co/wize)
+
 more links in the future... 🤔 ( mccyaoi on discord!!)
+
