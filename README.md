@@ -5,7 +5,7 @@
 <p align="center" dir="auto">
 <img src="https://64.media.tumblr.com/862232abd99da7f5312f278ab65afff2/b5963d540772886e-2f/s540x810/b992c285ef6166ce9d9314070619983b10afeecf.gifv" style="max-width: 100%; "></p>
 
-                     ㅤ◟ ͜͝ ̣̣̥ ㅤㅤ ִ  𓏵ི　　 or hyun  __　 　  ݄ 𓄋
+                     ㅤ◟ ͜͝ ̣̣̥ ㅤㅤ ִ  𓏵ི　　 or denis  __　 　  ݄ 𓄋
 
 
                        ㅤㅤ ֪♱ 　　3𝙩𝙚𝙚𝚗   ᶠᵉᵐᵃˡᵉ　　 ֪࣪ ̣̣̥  ݃
