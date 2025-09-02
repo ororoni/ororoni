@@ -5,6 +5,9 @@
 <p align="center" dir="auto">
 <img src="https://64.media.tumblr.com/862232abd99da7f5312f278ab65afff2/b5963d540772886e-2f/s540x810/b992c285ef6166ce9d9314070619983b10afeecf.gifv" style="max-width: 100%; "></p>
 
+                            ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=free-asabird-billy&color=red&style=plastic&label= views<3՞꜆.⠀🫀⠀⠀)
+
+
                      ㅤ◟ ͜͝ ̣̣̥ ㅤㅤ ִ  𓏵ི　　 or denis  __　 　  ݄ 𓄋
 
 
