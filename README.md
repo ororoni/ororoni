@@ -1,4 +1,9 @@
-redoing,,
+<p align="center" dir="auto">
+<sub>wip </sub>
+
+<p align="center" dir="auto">
+<img src="https://files.catbox.moe/zujvfl.png" style="max-width: 100%; "></p>
+
 
 
 [ponytown rules](https://rentry.co/tpkmuvix)
