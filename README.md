@@ -14,8 +14,8 @@
 <br>
 
 
-[shared rentry](https://rentry.co/pauljohn)ㅤㅤ[ata](https://bandontherun.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)
-
+[shared rentry](https://rentry.co/pauljohn)ㅤㅤ[ata](https://bandontherun.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)ㅤㅤ[rentry links](https://rentry.co/wize)
+ㅤㅤ
 ⠀⠀
 
 
