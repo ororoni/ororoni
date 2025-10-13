@@ -4,12 +4,12 @@
 
 
 <p align="center" dir="auto">
-<img src="https://files.catbox.moe/vb6lm7.png"> 
+<img src="https://files.catbox.moe/9k4wgx.png"> 
 
 <div align='center'> 
 
 
- <br> ㅤbiggest  ㅤㅤwilson ㅤㅤ fan
+ <br> ㅤbiggest  ㅤㅤtenna ㅤㅤ fan
 
 <br>
 
