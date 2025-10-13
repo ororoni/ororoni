@@ -8,7 +8,8 @@
 
 <div align='center'> 
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Michroma&weight=300&pause=1000&color=C01E1D&background=FFE95100&center=true&vCenter=true&width=435&lines=IIITTTTSSSS+TTTVVVV+TIIMMMEEE!!!!!!!!!;+look+at+that+Fun-o-meter!!!+Haha!!!)](https://git.io/typing-svg)
+                    
  <br> ㅤbiggest  ㅤㅤtenna ㅤㅤ fan
 
 <br>
