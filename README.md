@@ -1,7 +1,9 @@
+
+
 ㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ovkj4zy2dpnm7nft7ynmpapes4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=5e3d2c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=bigshot!&abbreviated=true&color=dfe155)
 
 <p align="center" dir="auto">
 <img src="https://files.catbox.moe/9k4wgx.png"> 
@@ -20,4 +22,4 @@
 ⠀⠀
 
 
-![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=bigshot!&abbreviated=true&color=dfe155)
+
