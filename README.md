@@ -10,10 +10,9 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Michroma&weight=300&pause=1000&color=C01E1D&background=FFE95100&center=true&vCenter=true&width=435&lines=IIITTTTSSSS+TTTVVVV+TIIMMMEEE!!!!!!!!!;+look+at+that+Fun-o-meter!!!+Haha!!!)](https://git.io/typing-svg)
                     
- <br> ㅤbiggest  ㅤㅤtenna ㅤㅤ fan
-
-<br>
-
+<p align="center">
+      ${\textsf{\color{#e0dd4e} biggest }}$      ${\textsf{\color{#c21e1c} tenna }}$      ${\textsf{\color{#601f40} fan ♡ }}$
+   <br>
 
 [rentry](https://rentry.co/hospitalyaoi)ㅤㅤ[ata](https://robertseanleonard.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)ㅤㅤ[rentry links](https://rentry.co/wize)ㅤㅤ [<3](https://rentry.co/pauljohn) ㅤㅤ [strawpage](https://stimulated.straw.page/)
 
