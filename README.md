@@ -16,7 +16,7 @@
       ᵐᵘˡᵗⁱᵏⁱⁿⁿᵉʳ  ,  ᶜʰᵉᶜᵏ ˡⁱⁿᵏˢ!
    <br>
 
-[rentry](https://rentry.co/remastered)ㅤㅤ[ata](https://robertseanleonard.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)ㅤㅤ[rentry links](https://rentry.co/wize)ㅤㅤ [<3](https://rentry.co/pauljohn) ㅤㅤ [strawpage](https://stimulated.straw.page/)
+[rentry](https://rentry.co/remastered)ㅤㅤ[ata](https://mclennon.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)ㅤㅤ[rentry links](https://rentry.co/wize)ㅤㅤ [<3](https://rentry.co/pauljohn) ㅤㅤ [strawpage](https://stimulated.straw.page/)
 
 ㅤㅤ
 ⠀⠀
