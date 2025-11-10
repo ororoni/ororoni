@@ -6,14 +6,13 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=history.&abbreviated=true&color=786745)
 
 <p align="center" dir="auto">
-<img src="https://i.pinimg.com/originals/74/26/1e/74261e46d1b4e76d01e5d10975346b38.gif"> 
+<img src="https://64.media.tumblr.com/bdd61be1ad9ac22d3716cf1602c41045/7a7c41f0d155bd3c-d3/s540x810/9a0c03785a85508235c6178e75bb1f9aeabc4d6d.pnj"> 
 
 <div align='center'> 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=737384&width=435&lines=no+more+lonely+nighhhttsss!)](https://git.io/typing-svg)
                     
 <p align="center">
-      ᵐᵘˡᵗⁱᵏⁱⁿⁿᵉʳ  ,  ᶜʰᵉᶜᵏ ˡⁱⁿᵏˢ!
    <br>
 
 [rentry](https://rentry.co/remastered)ㅤㅤ[ata](https://mrsun.atabook.org/)ㅤㅤ[fm](https://stats.fm/31ovkj4zy2dpnm7nft7ynmpapes4) ㅤ[wall text](https://walloftext.co/doctorwilson)ㅤㅤ[rentry links](https://rentry.co/wize)ㅤㅤ [<3](https://rentry.co/pauljohn) ㅤㅤ [strawpage](https://stimulated.straw.page/)
