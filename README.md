@@ -1,10 +1,6 @@
+![](https://i.pinimg.com/736x/9b/7a/86/9b7a862bd0bbc6568d7304061b8648f1.jpg)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=scholars&abbreviated=true&color=111112)
-
-yay ok wip i liek isaac newton
-
-
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=TMAGFMB&abbreviated=true&color=522b14)
 
