@@ -2,5 +2,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=TMAGFMB&abbreviated=true&color=522b14)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=TMAGFMB&abbreviated=true&color=522b14)
 
+<p align="center" dir="auto">
+<a href="rentry.co/stupidjerk";>rentry</a> <a href="teddyuris.atabook.org/";>ata</a> <br><a href="https://rentry.co/tpkmuvix";>pt rules</a><br>
